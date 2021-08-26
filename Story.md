@@ -1,0 +1,1 @@
+One upon a time in a forest there lived a monkey who resided on a almond tree,which was on the banks of the river.In the same forest there lived a crocodile and his wife one day the crocodile came and rest near the tree.The monkey offwerd him some almods so the crocodile like them and slowly they become friends
